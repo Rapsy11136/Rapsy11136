@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Rapsy11136
+- 👋 Hi, my name is Tshepiso Raphepela
 - 👀 I’m interested in Emerging Technology.
-- 🌱 I’m currently learning pursuing Bsc Information Technology Course.
+- 🌱 I am Bsc Information Technology Graduate.
 - 💞️ I’m looking to collaborate on Technical projects.
 - 📫 Reach me on my email - belicrapsy11136@gmail.com
 
